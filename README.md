@@ -1,0 +1,1 @@
+hi everyone!!!!!!!!!!!!!!!!! i am erik!!!!!!!!!!!!!!!!!! i am code!!!!!!!!!!!!!!!! i am java coder!!!!!!!!!!!!!!!!!! learning java !!!!!!!!!!!!!!!!! hi!!!!!!!!!!!!!!!!!!!!!!!! java kind of hard!!!!!!!!!!!!!!
