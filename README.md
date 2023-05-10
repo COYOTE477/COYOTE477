@@ -1,1 +1,1 @@
-hi everyone!!!!!!!!!!!!!!!!! i am erik!!!!!!!!!!!!!!!!!! i am code!!!!!!!!!!!!!!!! i am java coder!!!!!!!!!!!!!!!!!! learning java !!!!!!!!!!!!!!!!! hi!!!!!!!!!!!!!!!!!!!!!!!! java kind of hard!!!!!!!!!!!!!!
+My name is erik. I am using this space for Minecraft projects and a website(maybe)
